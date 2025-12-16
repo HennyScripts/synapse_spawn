@@ -1,1 +1,1 @@
-![Uploading image.png…]()
+https://media.discordapp.net/attachments/1394162284170842152/1450456119490248875/image.png?ex=69429a07&is=69414887&hm=23e77ccbb879820ba4c89ec40ab6e5c11da475f007b8a56b39039f690af2bd17&=&format=webp&quality=lossless&width=1526&height=859 Preview through this here!
